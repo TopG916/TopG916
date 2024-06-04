@@ -1,2 +1,5 @@
-Come here for unblocked games, unblockers, and more  
-Github pages is enabled: topg916.github.io
+ooo readme
+
+I dev ubg sites
+
+Github pages: topg916.github.io/Topg916
